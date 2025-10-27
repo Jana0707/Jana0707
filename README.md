@@ -45,10 +45,6 @@ _B.E. Computer Science and Engineering (2022–Present)_
 _Diploma in Electronics and Communication (2022)_  
 🏅 **Percentage:** 95%
 
-🎓 **Government Higher Secondary School**  
-_S.S.L.C (2018)_  
-📊 **Percentage:** 60%
-
 ---
 
 ### 💼 Internships
